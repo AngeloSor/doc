@@ -1,3 +1,0 @@
-# Piero
-
-Prova di piero
